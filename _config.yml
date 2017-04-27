@@ -1,0 +1,8 @@
+title: Net(z) Home of Nicolai Pogadl
+description: International Affairs ¦ Human Rights ¦ Technology ¦
+google_analytics: 
+show_downloads: true
+theme: jekyll-theme-minimal
+
+gems:
+  - jekyll-mentions
