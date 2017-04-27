@@ -6,6 +6,6 @@
 
 **Throughout university** I was active as an event organizer, IT admin and alumni representative for the [St. Gallen Symposium](www.symposium.org), a yearly conference which brings together students with +500 senior politicians, academics, and business executives. 
 
-**Additionally, I worked for** social organisations, such as a hospice in the United Kingdom and a kindergarten for children with disabilities in Stuttgart, Germany. I am also a human retweet bot ([@nicolaipogadl](https://twitter.com/nicolaipogadl)) and I use Snapchat (reluctantly) to stay in touch with my four younger sisters back in Germany.
+**Additionally, I worked for** social organisations, such as a hospice in the United Kingdom and a kindergarten for children with disabilities in Stuttgart, Germany. I am also a human retweet bot ([@nicolaipogadl](https://twitter.com/nicolaipogadl)) and I use Snapchat (reluctantly) to stay in touch with my four younger sisters.
 
-**The best way** to contact me is via email (pogadl.nicolai@gmail.com), Signal, or Twitter ([@nicolaipogadl](https://twitter.com/nicolaipogadl)).   
+**A good way** to contact me is via email (pogadl.nicolai@gmail.com OR alexander.pogadl@gmail.com ([public key](https://keys.mailvelope.com/pks/lookup?op=get&search=0x2FFC186EFCB26507)) or Twitter ([@nicolaipogadl](https://twitter.com/nicolaipogadl)).   
