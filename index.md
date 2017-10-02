@@ -8,4 +8,6 @@
 
 **Additionally, I worked for** social organisations, such as a hospice in the United Kingdom and a kindergarten for children with disabilities in Stuttgart, Germany. I am also a human retweet bot ([@nicolaipogadl](https://twitter.com/nicolaipogadl)) and I use Snapchat (reluctantly) to stay in touch with my four younger sisters.
 
-**A good way** to contact me is via email pogadl.nicolai@gmail.com, Signal/WhatsApp (+1 514 236 4828) or Twitter ([@nicolaipogadl](https://twitter.com/nicolaipogadl)).   
+**A good way** to contact me is via email pogadl.nicolai@gmail.com, Signal/WhatsApp (+1 514 236 4828) or Twitter ([@nicolaipogadl](https://twitter.com/nicolaipogadl)).
+
+**More information about** curent and past project involvements can be found [following this link](https://docs.google.com/document/d/11KmdCrsksI4OegkQ0qaVIj145SAWMHU2TedFDpmeOrw/edit?usp=sharing).
