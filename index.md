@@ -9,7 +9,6 @@
 **Throughout university** I was active as an event organizer, IT project leader and alumni representative for the [St. Gallen Symposium](www.symposium.org), a yearly conference which brings together graduate students with  more than 300 senior politicians, academics, and business executives. 
 
 **Before university, I worked for** several social organisations, for example a hospice in the United Kingdom and a kindergarten for children with disabilities in Germany. 
-([@nicolaipogadl](https://twitter.com/nicolaipogadl)).
 
 **A good way** to contact me is via email pogadl.nicolai@gmail.com or via Twitter ([@nicolai_pogadl](https://twitter.com/nicolai_pogadl)).
 
