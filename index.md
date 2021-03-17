@@ -1,6 +1,6 @@
 **I was born in** Germany, studied in Switzerland and currently live in Montreal, Canada.
 
-As a freelance Project Manager and Media Analyst I provide consultancy and management services to clients in Canada and Europe.
+As a freelance Project Manager and Media Analyst I provide consultancy and management services for clients in Europe and Canada.
 
 Until April 2020 I worked **at the Canadian International Council** in [Toronto](https://thecic.org/about/) and helped to engage Canadians in the national conversation on international issues - the CIC's mission since 1928.  
 
