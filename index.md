@@ -1,6 +1,6 @@
 **I was born in** Germany, studied in Switzerland and currently live in Montreal, Canada.
 
-As a freelance Project Manager and Media Analyst I provide consultancy and management services for clients in Europe and Canada.
+As a **freelance Project Manager and Media Analyst** I provide consultancy and management services for clients in Europe and Canada.
 
 **A good way** to contact me is via email pogadl.nicolai@gmail.com or via Twitter ([@nicolai_pogadl](https://twitter.com/nicolai_pogadl)).
 
