@@ -14,6 +14,5 @@ Until April 2020 I worked **at the Canadian International Council** in [Toronto]
 
 **Before university, I worked for** several social organisations, for example a hospice in the United Kingdom and a kindergarten for children with disabilities in Germany. 
 
-**A good way** to contact me is via email pogadl.nicolai@gmail.com or via Twitter ([@nicolai_pogadl](https://twitter.com/nicolai_pogadl)).
 
 
