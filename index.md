@@ -2,6 +2,8 @@
 
 As a freelance Project Manager and Media Analyst I provide consultancy and management services for clients in Europe and Canada.
 
+**A good way** to contact me is via email pogadl.nicolai@gmail.com or via Twitter ([@nicolai_pogadl](https://twitter.com/nicolai_pogadl)).
+
 Until April 2020 I worked **at the Canadian International Council** in [Toronto](https://thecic.org/about/) and helped to engage Canadians in the national conversation on international issues - the CIC's mission since 1928.  
 
 **From 2015 to 2018** I was as a project manager at the [Montreal Institute for Genocide and Human Rights Studies](http://www.concordia.ca/research/migs/) and the [Digital Mass Atrocity Prevention Lab](http://www.concordia.ca/research/migs/projects/dmap.html) at Concordia University in Montreal. 
